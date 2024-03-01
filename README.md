@@ -1,0 +1,4 @@
+-  yo, sou o @tzimot
+-  gosto de programar e dzain
+-  to a aprender ecgm
+-  discord: dzimot
