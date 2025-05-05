@@ -1,4 +1,6 @@
 -  yo, sou o @tzimot
 -  gosto de programar e dzain
--  to a aprender ecgm
+-  sou experienced em: html, css, c, java, ionic
+-  também usei: adobe premiere, illustrator e photoshop
+-  estou a tirar licenciatura de ecgm atualmente
 -  discord: dzimot
